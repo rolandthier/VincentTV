@@ -42,5 +42,5 @@ De gegevens worden NIET gedeeld met derden en zijn uitsluitend voor intern gebru
 
 ## Contactgegevens
 
-- Email: rolandthier@icloud.com
+- Email: info@thier.nl
 - Telefoon: 0651654675
